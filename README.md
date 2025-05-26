@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to use Github
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
-- - 106190@g.elearn.uz.zgora.pl
+- - pawel.halajko2000@gmail.com
 - 
 
 <!---
